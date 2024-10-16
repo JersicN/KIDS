@@ -1,5 +1,5 @@
 # KIDS
 ## Komuniciranje in delo v skupini.
 ### Asistenta
-Nika Jersic
+Nika Jersic - vsak dan spije kavo
 Tomi presa
